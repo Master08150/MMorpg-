@@ -1,2 +1,3 @@
-# MMorpg-
-Do you want to build with other programmers the best mmorpg in the world then join us 
+# MMorpg- 
+Hello world, I'm looking for programmers who can implement my idea. I want to create the best mmorpg of this world I have numerous ideas with which we create an unforgettable game. To give you an example, the class system will not play with magic like in any other mmorpg in the Middle Ages  There should be in the current time with classes from the army such as sniper or fighter jet pilot. If you are interested, please contact me. We will discuss the wage personally, but I can't give you anything, so you won't be paid until the game comes out. If you have other ideas, get in touch with me, we can talk together.
+Bye bye your master 
